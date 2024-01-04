@@ -1,1 +1,1 @@
-# tazklan
+# tazklan is a group of people that crash gorilla tag servers and you, yes YOU can join us if you have a crash or just wanna join. Basically if you have a crasher and your part of tazklan and you have a soundboard then you can either use a audio we provide you or make your own for tazklan. Join our server https://discord.gg/C8qB8kKDkb and dm me on discord to join. my username is tazbuch#2176
